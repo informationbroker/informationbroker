@@ -14,5 +14,9 @@ fucked up perception of my identity and gender <ins>caused by c-did</ins>, LOL.
 <br>
 <a href="https://biohammer.atabook.org">sign my ata</a>
 <br><br>
-<a href="https://github.com/THE-TEMPIST">the tempist's</a> <b>spongs</b> (uu)<br>
-ponytown's number 1 <b>toxichero + ninecapten</b> <a href="https://github.com/THENUMBERONESHIPPER">shipper</a>
+<s><a href="https://github.com/THE-TEMPIST">the tempist's</a> <b>spongs</b> (uu)</s><br>
+ponytown's number 1 <b>toxichero + ninecapten</b> <a href="https://github.com/THENUMBERONESHIPPER">shipper</a> <br>
+<s><a href="https://github.com/piddlesjet">piddlesjet's</a> <b>nine</b> minesweeper+</s> <br>
+ponytown's best <b>minesweeper</b> <a href="https://github.com/piddlesjet">player</a>
+<br><br>
+^ strikethrough = pending name change / character change
