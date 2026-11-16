@@ -12,4 +12,5 @@ ponytown's number 1 <b>toxichero + ninecapten</b> <a href="https://github.com/TH
 <s><a href="https://github.com/piddlesjet">piddlesjet's</a> <b>nine</b> minesweeper+</s> <br>
 ponytown's best <b>minesweeper</b> <a href="https://github.com/piddlesjet">player</a>
 <br><br>
-^ strikethrough = pending name change / character change
+^ strikethrough = pending name change / character change <br>
+<b> i do not automatically know when im on a github. PLEASE tell me if i am nominated for one. i SUCK AT THIS githubb shit!</b>
