@@ -3,14 +3,7 @@ hi, felix here <a href="https://rentry.co/ninecapten">my rentry</a> <br><br>
 broker fictionkin<br>
 broker selfshippers, plz dont mention it around me, LOL. 
 <br><br>
-trans MTM , bxy , otter<br>
-aroace , homoflexible
-<br><br><br>
-<b>c-did system</b>
-<br>
-fucked up perception of my identity and gender <ins>caused by c-did</ins>, LOL.
-
-<br>
+<details> <summary>my friends!</summary> <a href="https://github.com/asheistheUGLIEST"><b>ashe</b></a>, <a href="https://github.com/thirdlifescar">benrey</a>, <a href="https://github.com/klevinorot0">jean</a>, <a href="https://github.com/the-avery-XD">avery</a> <br> if you're a friend of mine and not on here its LIKELY CUZ IDK UR GITHUB,. </details>
 <br>
 <a href="https://biohammer.atabook.org">sign my ata</a>
 <br><br>
