@@ -2,7 +2,7 @@
 <div align="center">
 
 <h1> previously known as symbiosisduo</h1>
-hi, felix here <a href="https://rentry.co/ninecapten">my rentry</a> <br><br> <br>
+felix or any of my kins (or any of my ponies) <br><a href="https://rentry.co/ninecapten">my rentry</a> <br><br> <br>
 
 <img src="https://file.garden/aJ7ygju7_yp7XNCX/pony-town-brokes%20dat%20information%20%F0%9F%91%80-dance-3-padded-toy478-4x.gif" width="200px">
 <br>
