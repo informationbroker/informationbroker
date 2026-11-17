@@ -1,5 +1,11 @@
+
+<div align="center">
+
 <h1> previously known as symbiosisduo</h1>
-hi, felix here <a href="https://rentry.co/ninecapten">my rentry</a> <br><br>
+hi, felix here <a href="https://rentry.co/ninecapten">my rentry</a> <br><br> <br>
+
+<img src="https://file.garden/aJ7ygju7_yp7XNCX/pony-town-jerma%20%2C%20derpy%20CBC-dance-3-padded-4x.gif" width="200px">
+<br>
 broker fictionkin<br>
 broker selfshippers, plz dont mention it around me, LOL. 
 <br><br>
@@ -14,3 +20,5 @@ ponytown's best <b>minesweeper</b> <a href="https://github.com/piddlesjet">playe
 <br><br>
 ^ strikethrough = pending name change / character change <br>
 <b> i do not automatically know when im on a github. PLEASE tell me if i am nominated for one. i SUCK AT THIS githubb shit!</b>
+
+</div>
