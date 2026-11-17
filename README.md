@@ -11,7 +11,7 @@ broker selfshippers, plz dont mention it around me, LOL.
 <br><br>
 <details> <summary>my friends!</summary> <a href="https://github.com/asheistheUGLIEST"><b>ashe</b></a>, <a href="https://github.com/thirdlifescar">benrey</a>, <a href="https://github.com/klevinorot0">jean</a>, <a href="https://github.com/the-avery-XD">avery</a> <br> if you're a friend of mine and not on here its LIKELY CUZ IDK UR GITHUB,. </details>
 <br>
-<a href="https://biohammer.atabook.org">sign my ata</a> <br>
+<a href="https://infobroker.atabook.org">sign my ata</a> <br>
 do ya wanna do a skin trade? contact me here!
 <br><br>
 <details> <summary>nominations!</summary>
