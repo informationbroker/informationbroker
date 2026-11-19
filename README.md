@@ -9,7 +9,7 @@ felix or <i>any of my kins</i> (or any of my ponies) <br><a href="https://rentry
 broker fictionkin<br>
 broker selfshippers, plz dont mention it around me, LOL. 
 <br><br>
-<details> <summary>my friends!</summary> <a href="https://github.com/asheistheUGLIEST"><b>ashe</b></a>, <a href="https://github.com/thirdlifescar">benrey</a>, <a href="https://github.com/klevinorot0">jean</a>, <a href="https://github.com/the-avery-XD">avery</a> <br> if you're a friend of mine and not on here its LIKELY CUZ IDK UR GITHUB,. </details>
+<details> <summary>my friends!</summary> <a href="https://github.com/asheistheUGLIEST"><b>ashe</b></a>, <a href="https://github.com/thirdlifescar">benrey</a>, <a href="https://github.com/klevinorot0">jean</a>, <a href="https://github.com/the-avery-XD">avery</a> <br> if you're a friend of mine and not on here its LIKELY CUZ IDK UR GITHUB,. <br> do u wanna be added,,? contact me so i know 2 add u! :-D </details>
 <br>
 <a href="https://infobroker.atabook.org">sign my ata</a> <br>
 do ya wanna do a skin trade? contact me here!
